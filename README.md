@@ -7,7 +7,7 @@
 
 The real estate industry is experiencing a major technological shift. Amidst changing buyer behavior, rising operational costs, and an increasingly competitive market, automation has become essential—not just for efficiency, but for survival. One of the most exciting and impactful innovations leading this transformation is the **Voice AI Agent**.
 
-From streamlining lead qualification to providing instant property information,<a href="https://neyox.ai" target="_blank">Voice AI Agents in real estate</a> are redefining how agents, property managers, and agencies interact with potential buyers and renters. These intelligent, conversational systems enable real estate professionals to **automate workflows, engage prospects instantly, and close deals faster** than ever before.
+From streamlining lead qualification to providing instant property information,<a href="https://neyox.ai/voice-ai-agent-for-real-estate" target="_blank">Voice AI Agents in real estate</a> are redefining how agents, property managers, and agencies interact with potential buyers and renters. These intelligent, conversational systems enable real estate professionals to **automate workflows, engage prospects instantly, and close deals faster** than ever before.
 
 ### What Are Voice AI Agents?
 
